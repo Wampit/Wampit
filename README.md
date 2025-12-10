@@ -1,4 +1,4 @@
- 🥀 Olá, seja bem-vindo(a) ao meu cantinho no GitHub! Sou a Rafa  ִֶָ𓂃 ࣪˖ ִִֶֶָ🥀་༘࿐
+ 🥀 𝐎𝐥á, 𝐬𝐞𝐣𝐚 𝐛𝐞𝐦-𝐯𝐢𝐧𝐝𝐨(𝐚) 𝐚𝐨 𝐦𝐞𝐮 𝐜𝐚𝐧𝐭𝐢𝐧𝐡𝐨 𝐧𝐨 𝐆𝐢𝐭𝐇𝐮𝐛! 𝐒𝐨𝐮 𝐚 𝐑𝐚𝐟𝐚  ִֶָ𓂃 ࣪˖ ִִֶֶָ🥀་༘࿐
 
 ✨ Estou iniciando minha jornada no mundo da programação e descobrindo, aos poucos, o quanto eu gosto de criar, aprender e dar vida a ideias através do código.
 
